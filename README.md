@@ -1,0 +1,1 @@
+# analise-imagem-4.0-com-ai-vision-service
